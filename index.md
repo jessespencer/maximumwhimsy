@@ -1,1 +1,1 @@
-## Welcome to Mer's Maximum Whimsy Band!
+## Welcome to the Maximum Whimsy Band!
